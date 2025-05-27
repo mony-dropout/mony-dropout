@@ -1,7 +1,7 @@
-# I am MONY
-## i wanna dropout of iitd and build a startup very soon
-so right now, what my life is is basically just working all day... im learning lots of cool math and cs, im learning programming, im going to build lots of cool stuff, 
-and learn tons of interesting stuff and get better every single day
-oh, i also play basketball, and imma play in the nba when im a billionaire ;)
+#i am mony
+##i literally just do whatever i want to
+i really like math, cs and building cool shit... 
+i wanna become the best ever and i am going to do it completely my way cos i think i am about to be the best there has ever been
+im going to dropout of iitdelhi and build a really cool startup and make it worth over a billion dollars before im 23.
 
 
